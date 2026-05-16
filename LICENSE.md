@@ -1,4 +1,4 @@
-# 
+# Enhance Vegas Pro for PC | Vegas Pro for Windows with vip Vegas Pro for PC | Vegas Pro for Windows Addon | video-stabilization + noise-reduction, the #1 addon. Includes
 
 
 
